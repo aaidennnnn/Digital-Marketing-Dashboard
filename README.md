@@ -9,3 +9,6 @@ On top of that, I’m continuously learning and making the world a better place 
 🎒 Sharing happiness and inspiring people around the globe as a 𝗪𝗼𝗿𝗹𝗱 𝗧𝗿𝗮𝘃𝗲𝗹𝗲𝗿
 
 🙌🏽 Feel free to message me and connect 🤝🏼
+LinkedIn : https://www.linkedin.com/in/aidensnomadlife/
+Website : https://aidentsai.crd.co/
+Email : aidensnomadlife@gmail.com
